@@ -1,2 +1,2 @@
 # website
-ingguwatifebriyani - uym website
+ingguwatifebriyani-uym website
